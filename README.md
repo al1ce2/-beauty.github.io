@@ -1,1 +1,1 @@
-# todaysmakeup.github.io
+# beauty.github.io
